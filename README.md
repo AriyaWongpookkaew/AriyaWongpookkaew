@@ -2,7 +2,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 ==========================================================================================================================================
 
 * 🌍  I'm based in Thailand
-* ✉️  You can contact me at [ariya.w66@rsu.ac.th](mailto:ariya.w66@rsu.ac.th)
+* ✉️  You can contact me at [airyawongpookkaew@gmail.com](mailto:airyawongpookkaew@gmail.com)
 
 ### Skills
 
